@@ -1,2 +1,2 @@
-# COMP2001 Subodh Syanta Tamang
+# COMP2001 Subodh Syantan Tamang
  
